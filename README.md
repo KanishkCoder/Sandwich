@@ -1,0 +1,1 @@
+First wash the vegetables,Cut the vegetable in small slices,Take the bread slices and place cheese slices,then place cabbage leaves,then tomato slices,then place cucumber and onion;
